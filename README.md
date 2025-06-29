@@ -1,0 +1,1 @@
+# shogirdlik_G_2
